@@ -1,2 +1,2 @@
-# Dynamo-Prime-Stick
-&lt;b>&lt;a href="https://dynamome.com/products/primestick" target="_blank">DYNAMO Prime Stick&lt;/a>&lt;/b> – One size fits all – This urban walking cane is for those who want to walk upright with confidence &amp; have somewhere to go! Its’ features make it the most - comfortable, stable and versatile. The foam covered, all-terrain/weather design won’t rust or rattle. It’s strong and beautiful! 
+# SEO articles
+
